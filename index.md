@@ -1,4 +1,4 @@
-## [A👁/](https://allseeingi.xn--a-z42s.hns.to/) | a Handshake top level domain
+## [A👁/](https://allseeingi.xn--a-z42s.hns.to/) | an emoji Handshake top level domain
 
 [![image](https://user-images.githubusercontent.com/37987346/101999396-a37e4380-3caa-11eb-8cc6-e61fb53c7855.png)](http://shapereality.innerinetcompany.hns.to/)
 
